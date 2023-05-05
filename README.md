@@ -11,7 +11,7 @@ Assigned Tasks for Research Paper:
   
 **DE JOSE, Charrie Lou P.**
   - Presentation of the chosen technology
-    ▪ Uses and functions
+  Uses and Functions
     ▪ Importance and benefits
   - PPT
  
